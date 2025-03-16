@@ -1,2 +1,2 @@
-Wip lol
-<p Style="text-align: center;"><img src="https://i.imgur.com/Hlx83yy.jpeg" class="fr-fic fr-dib" width="1512" height="200"></p>
+<p style="text-align: center;"><strong>Please sign my </strong><a href="https://sumcornchips.atabook.org/" id=""><strong>Atabook</strong></a><strong> or </strong><a href="https://sumcornchips.straw.page/" id=""><strong>Strawpage</strong></a><strong> if you can!!</strong></p>
+<p><strong><img src="https://static.wikia.nocookie.net/danganronpa/images/3/32/Danganronpa_1_Junko_Enoshima_School_Mode_Pixel_Sprite_03.gif" class="fr-fic fr-dib" width="99" height="89.0938"></strong></p>
