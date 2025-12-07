@@ -1,3 +1,4 @@
+<p align="center"><strong><img src="https://i.postimg.cc/RFb4TFQ0/twitter-gif-1765092928305.gif" class="fr-fic fr-dib" width="498" height="214"></strong></p>
 <p align="center"><strong>Please sign my </strong><a href="https://sumcornchips.atabook.org/" id=""><strong>Atabook</strong></a><strong> or </strong><a href="https://sumcornchips.straw.page/" id=""><strong>Strawpage</strong></a><strong> if you can!!</strong></p>
 <p align="center"><strong><img src="https://64.media.tumblr.com/c684b5fedccd24f5881c61af20240cc8/f99459d45161677b-ec/s640x960/ff8ed639126d27cffd8776cb7049667424390201.gifv" class="fr-fic fr-dib" width="534" height="18.5625"></strong></p>
 <p align="center"><strong><img src="https://static.wikia.nocookie.net/danganronpa/images/3/32/Danganronpa_1_Junko_Enoshima_School_Mode_Pixel_Sprite_03.gif" class="fr-fic fr-dib" width="99" height="89.0938"></strong></p>
